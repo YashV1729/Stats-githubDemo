@@ -21,7 +21,7 @@ List of contributors:
 Angus Nicholson, Lawrence Lam, Priscilla Soenario, Jenny Ta, Charles Vanderbilt, John Blackburn-Hart
 
 Group 3
-===
+===Priyanka, Bruno, Sam, Rohan, Paul
 
 Group 4
 ===
